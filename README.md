@@ -1,1 +1,0 @@
-# ayakayaka.github.io
